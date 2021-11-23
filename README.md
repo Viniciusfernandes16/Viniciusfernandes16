@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Viniciusfernandes16
 - 👀 I’m interested in learning about management and investments
 - 🌱 I’m currently learning about those two :)
-- 💞️ I’m looking to collaborate on everything
+- 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me limafernandesvinicius16@gmail.com
 
 <!---
